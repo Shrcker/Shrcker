@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me: through email, at tanner.shirkey@gmail.com, is best.
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I'm a dork
 
 <!---
 Shrcker/Shrcker is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
